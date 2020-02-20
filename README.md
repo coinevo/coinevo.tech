@@ -1,1 +1,0 @@
-# coinevo.tech
